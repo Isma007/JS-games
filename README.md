@@ -1,2 +1,2 @@
-Have fun playing these simples but elegants videogames
-Code 100% Free Download, enjoy yourself!
+Have fun playing this simple but elegant videogame
+Code 100% Free Download, enjoy it!
